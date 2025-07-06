@@ -143,7 +143,7 @@ Contributions are welcome! Please follow these steps:
 
 ## Contact
 
-Your Name - [Muhammad Taha](https://twitter.com/yourtwitter) - toaha155@gmail.com
+Name - [Muhammad Taha](https://twitter.com/yourtwitter) - toaha155@gmail.com
 
 Linkedin: [https://www.linkedin.com/in/muhammad-taha101/](https://www.linkedin.com/in/muhammad-taha101/)
 
